@@ -1,3 +1,2 @@
 Este arquivo foi modificado 
-Adcionando outra mudan‡a 
-adhaudhau 
+Adcionando outra mudan‡a
