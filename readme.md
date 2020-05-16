@@ -1,2 +1,1 @@
-Este arquivo foi modificado 
-Adcionando outra mudan‡a
+Realizando mudan‡as no arquivo 
